@@ -1,4 +1,4 @@
-
+exclusive shrink for brainrots Script offers the most advanced shrink for brainrots Script, with auto-collect and instant win. Perfect for dominating
 
 
 
